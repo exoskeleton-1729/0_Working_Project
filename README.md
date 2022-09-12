@@ -1,1 +1,1 @@
-# Eldrithc_Horror_Giga_Pudding
+# Eldritch_Horror_Giga_Pudding
